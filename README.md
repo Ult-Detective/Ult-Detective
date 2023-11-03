@@ -1,7 +1,7 @@
 ## 👋 Hello there! I'm SHUICHI/KAGE/YOON 🌟
 
 ### About Me
-- ✨ Pronouns: Any! Just call me by my current name.
+- ✨ Pronouns: Either my preferred ones, or just my name will do.
 - 🎈 I'm a minor, 16 years old.
 - 🌈 Panromantic Hypersexual Ace.
 - 📚 Fictionkin 📖
